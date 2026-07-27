@@ -1,0 +1,1 @@
+Vergleiche meinen Lebenslauf [EINFÜGEN] mit dieser Stellenbeschreibung [EINFÜGEN]. Liefere: fehlende Schlüsselwörter fürs ATS-Screening (als Liste), zu schwach hervorgehobene Fähigkeiten, Umstrukturierungsvorschlag für meine Top 5 Stichpunkte. Priorisiere nach größter Auswirkung auf die Einladungschance.
