@@ -1,0 +1,1 @@
+Erstelle ein Anschreiben für [Position] bei [Unternehmen], das folgende Elemente integriert: 3 konkrete Erfolgsmetriken aus meiner Karriere, Verweis auf Unternehmenswerte, klare und sachliche Sprache.
