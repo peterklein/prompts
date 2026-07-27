@@ -1,0 +1,1 @@
+Formuliere jeden meiner Lebenslauf-Stichpunkte [EINFÜGEN] nach dieser Formel um: starkes Aktionsverb + konkrete Aufgabe + messbares Ergebnis (%, €, Anzahl). Falls Zahlen fehlen: stelle mir gezielte Fragen um sie zu finden. Liefere Vorher/Nachher-Vergleich pro Stichpunkt. Keine Floskeln, nur Ergebnisse.

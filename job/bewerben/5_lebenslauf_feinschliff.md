@@ -1,0 +1,1 @@
+Mache eine finale Überprüfung meines Lebenslaufs [EINFÜGEN]. Prüfe: Zeitform-Konsistenz, Klischees (‚Teamplayer’, ‚fleißig’, ‚motiviert’), generische Aussagen die auf jeden zutreffen könnten. Ersetze alles durch konkrete, ausdrucksstarke Formulierungen. Liefere: korrigierten CV + Liste der 10 wichtigsten Änderungen.

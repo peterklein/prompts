@@ -1,0 +1,1 @@
+Analysiere Tonfall, Sprache und Werte von [UNTERNEHMEN A, B, C] in [BRANCHE]. Schreibe meine Zusammenfassung und Fähigkeiten-Sektion [EINFÜGEN] so um, dass ich klinge als gehöre ich in diese Branche – nicht wie ein austauschbarer Bewerber. Liefere: Text + markierte Stilelemente die ich übernommen habe

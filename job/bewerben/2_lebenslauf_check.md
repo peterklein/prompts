@@ -1,0 +1,1 @@
+Du bist Personalleiter bei einem Top-Unternehmen in [BRANCHE]. Hier ist mein Lebenslauf: [EINFÜGEN]. Sei brutal ehrlich: Was ist schwach, was fehlt komplett, was würde dich zur sofortigen Ablehnung bringen? Liefere: Top 3 Schwächen, Top 3 fehlende Elemente, 1 Killer-Fehler den ich sofort beheben muss. Keine Höflichkeitsfloskeln.
